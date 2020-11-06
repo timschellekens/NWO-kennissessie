@@ -2,31 +2,50 @@
 
 ## Case 1
 
-[Filmpje](https://www.youtube.com/watch?v=8kVI621fZug)
+**NK Atletiek - 110m horden series mannen**
 
-![Waveform](/Waveform-combined.jpeg)
-![Waveform](/Waveform-single.jpeg)
+> Baan 1 loopt horden omver.
+> Baan 2 wordt gehinderd en protesteert.
+
+[Filmpje](https://www.youtube.com/watch?v=8wB6Vckn-0o)
+
 
 
 ## Case 2
 
-[Filmpje](https://www.youtube.com/watch?v=8kVI621fZug)
+**NK Atletiek U20 & U18 - 800 m**
 
-![Waveform](/Waveform-combined.jpeg)
-![Waveform](/Waveform-single.jpeg)
+> DQ door “Afsnijden”. 
+> Zelf heb ik dit niet gemerkt. Ook niks gehoord van mijn medelopers die ik afgesneden zou hebben. 
+> De scheidsrechter heeft het beoordeelt als afsnijden. 
+> Maar zelf denk ik, ik heb geen ogen in mijn achterhoofd. 
+> Ik heb niet gezien dat hij daar liep. 
+> Daarna heb ik de race vanaf kop uitgelopen.
+
+[Filmpje](https://www.youtube.com/watch?v=XT9uEVWc4xM)
+
 
 
 ## Case 3
 
-[Filmpje](https://www.youtube.com/watch?v=8kVI621fZug)
+**NK Atletiek U20 & U18 - 1500 m**
 
-![Waveform](/Waveform-combined.jpeg)
-![Waveform](/Waveform-single.jpeg)
+> Onbegrip over DQ. 
+> Graag beelden bekijken over “uitgestrekte arm”. Tegenstander is ook niet gedupeerd.
+
+[Filmpje](https://www.youtube.com/watch?v=lCkRanaIFck)
+
 
 
 ## Case 4
 
-[Filmpje](https://www.youtube.com/watch?v=8kVI621fZug)
+**NK Atletiek U20 & U18 - 100m horden V U20**
+
+> Valse start geconstateerd door het SIS.
+> Maar wat zegt de wave
+
+[Filmpje](https://www.youtube.com/watch?v=vlH6iVGXfHc)
+
 
 ![Waveform](/Waveform-combined.jpeg)
 ![Waveform](/Waveform-single.jpeg)
