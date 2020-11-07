@@ -2,7 +2,7 @@
 
 **NK Atletiek - 110m horden series mannen**
 
-Baan 1 loopt horden omver.
+Baan 1 loopt horden omver.\
 Baan 2 wordt gehinderd en protesteert.
 
 [![110mH serie 2 NK Atletiek](http://img.youtube.com/vi/8wB6Vckn-0o/0.jpg)](http://www.youtube.com/watch?v=8wB6Vckn-0o "Case 1 - 110mH NK Atletiek")
