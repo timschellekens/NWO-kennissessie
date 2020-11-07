@@ -1,3 +1,14 @@
+## Intro
+
+**NK Atletiek - 110m horden finale mannen**
+
+Baan 6 DQ
+
+[![110mH finale NK Atletiek](http://img.youtube.com/vi/I8M0QA04hNA/0.jpg)](https://www.youtube.com/watch?v=I8M0QA04hNA "Casus - 110mH finale NK Atletiek")
+
+
+
+
 ## Case 1
 
 **NK Atletiek - 110m horden series mannen**
