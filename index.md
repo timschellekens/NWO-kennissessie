@@ -7,8 +7,7 @@
 > Baan 1 loopt horden omver.
 > Baan 2 wordt gehinderd en protesteert.
 
-[Filmpje](https://www.youtube.com/watch?v=8wB6Vckn-0o)
-
+[![110mH serie 2 NK Atletiek](http://img.youtube.com/vi/8wB6Vckn-0o/0.jpg)](http://www.youtube.com/watch?v=8wB6Vckn-0o "Case 1 - 110mH NK Atletiek")
 
 
 ## Case 2
@@ -32,8 +31,7 @@
 > Onbegrip over DQ. 
 > Graag beelden bekijken over “uitgestrekte arm”. Tegenstander is ook niet gedupeerd.
 
-[Filmpje](https://www.youtube.com/watch?v=lCkRanaIFck)
-
+[![1500m serie 2 U18](http://img.youtube.com/vi/lCkRanaIFck/0.jpg)](http://www.youtube.com/watch?v=lCkRanaIFck "Case 3 - 1500m NK U18&U20")
 
 
 ## Case 4
@@ -43,8 +41,7 @@
 > Valse start geconstateerd door het SIS.
 > Maar wat zegt de wave
 
-[Filmpje](https://www.youtube.com/watch?v=vlH6iVGXfHc)
-
+[![100mH serie 1 U20](http://img.youtube.com/vi/vlH6iVGXfHc/0.jpg)](http://www.youtube.com/watch?v=vlH6iVGXfHc "Case 4 - 100mH NK U18&U20")
 
 ![Waveform](/Waveform-combined.jpeg)
 ![Waveform](/Waveform-single.jpeg)
