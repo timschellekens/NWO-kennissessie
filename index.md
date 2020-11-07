@@ -1,11 +1,9 @@
-# NWO kennissessie
-
 ## Case 1
 
 **NK Atletiek - 110m horden series mannen**
 
-> Baan 1 loopt horden omver.
-> Baan 2 wordt gehinderd en protesteert.
+Baan 1 loopt horden omver.
+Baan 2 wordt gehinderd en protesteert.
 
 [![110mH serie 2 NK Atletiek](http://img.youtube.com/vi/8wB6Vckn-0o/0.jpg)](http://www.youtube.com/watch?v=8wB6Vckn-0o "Case 1 - 110mH NK Atletiek")
 
@@ -14,6 +12,7 @@
 
 **NK Atletiek U20 & U18 - 800 m**
 
+Jury d'appel protest door atleet:
 > DQ door “Afsnijden”. 
 > Zelf heb ik dit niet gemerkt. Ook niks gehoord van mijn medelopers die ik afgesneden zou hebben. 
 > De scheidsrechter heeft het beoordeelt als afsnijden. 
@@ -28,6 +27,7 @@
 
 **NK Atletiek U20 & U18 - 1500 m**
 
+Jury d'appel protest door coach:
 > Onbegrip over DQ. 
 > Graag beelden bekijken over “uitgestrekte arm”. Tegenstander is ook niet gedupeerd.
 
@@ -38,8 +38,8 @@
 
 **NK Atletiek U20 & U18 - 100m horden V U20**
 
-> Valse start geconstateerd door het SIS.
-> Maar wat zegt de wave
+Valse start geconstateerd door het SIS.
+Maar wat zegt de wave
 
 [![100mH serie 1 U20](http://img.youtube.com/vi/vlH6iVGXfHc/0.jpg)](http://www.youtube.com/watch?v=vlH6iVGXfHc "Case 4 - 100mH NK U18&U20")
 
