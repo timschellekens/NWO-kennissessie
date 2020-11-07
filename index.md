@@ -1,4 +1,4 @@
-## Intro
+## Voorbeeld
 
 **NK Atletiek - 110m horden finale mannen**
 
