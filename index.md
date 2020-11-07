@@ -13,7 +13,7 @@ Baan 2 wordt gehinderd en protesteert.
 **NK Atletiek U20 & U18 - 800 m**
 
 Jury d'appel protest door atleet:
-> DQ door “Afsnijden”. 
+> DQ door “Afsnijden”. \
 > Zelf heb ik dit niet gemerkt. Ook niks gehoord van mijn medelopers die ik afgesneden zou hebben. 
 > De scheidsrechter heeft het beoordeelt als afsnijden. 
 > Maar zelf denk ik, ik heb geen ogen in mijn achterhoofd. 
