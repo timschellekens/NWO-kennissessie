@@ -3,6 +3,7 @@
 **NK Atletiek - 110m horden series mannen**
 
 Baan 1 loopt horden omver.
+
 Baan 2 wordt gehinderd en protesteert.
 
 [![110mH serie 2 NK Atletiek](http://img.youtube.com/vi/8wB6Vckn-0o/0.jpg)](http://www.youtube.com/watch?v=8wB6Vckn-0o "Case 1 - 110mH NK Atletiek")
@@ -13,7 +14,8 @@ Baan 2 wordt gehinderd en protesteert.
 **NK Atletiek U20 & U18 - 800 m**
 
 Jury d'appel protest door atleet:
-> DQ door “Afsnijden”. \
+> DQ door “Afsnijden”.
+
 > Zelf heb ik dit niet gemerkt. Ook niks gehoord van mijn medelopers die ik afgesneden zou hebben. 
 > De scheidsrechter heeft het beoordeelt als afsnijden. 
 > Maar zelf denk ik, ik heb geen ogen in mijn achterhoofd. 
