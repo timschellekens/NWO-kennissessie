@@ -22,8 +22,7 @@
 > Ik heb niet gezien dat hij daar liep. 
 > Daarna heb ik de race vanaf kop uitgelopen.
 
-[Filmpje](https://www.youtube.com/watch?v=cu25iLsiYh0)
-
+[![800m NK U18&U20](http://img.youtube.com/vi/cu25iLsiYh0/0.jpg)](http://www.youtube.com/watch?v=cu25iLsiYh0 "Case 2 - 800m NK U18&U20")
 
 
 ## Case 3
